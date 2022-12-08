@@ -1,1 +1,2 @@
 Jose Zamora
+Taiel Canada
